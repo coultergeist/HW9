@@ -1,7 +1,6 @@
 # HW9
 Prompt: 150 word business idea created by your group and all commit to same repo
-
-Bathroom Buddy
-==============
-
-Bathroom Buddy is your solution to all your toilet troubles. Have poor reviews on-line about your bathroom that you think are hurting your profits? We have a plan to show the most common mistakes business owners make, help you understand how to correct them, and even execute solutions to help turn those bad reviews around. Explore our different options to begin seeing immediate results!
+Name ideas: "A-Pot-to-shit-in!" "Shit AND get off the pot".  I know, I know...just shittin with ya'll!  Here are a a few ideas- 
+"Porceloin Gods!"
+"The 1's and 2's!"
+"Loo!"
